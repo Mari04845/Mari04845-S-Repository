@@ -8,7 +8,8 @@ qui troverai tutte le mie app e altro.
                                                                                      
 
 Vai in basso alla pagina per i download.
-                                        Facciamo diventare questo sito fantastico!                                                                
+                                        
+   Facciamo diventare questo sito fantastico!                                                                
 
 Join my crew! https://discord.gg/9EGV6CH2Pc                                                                                   
 
