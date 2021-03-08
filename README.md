@@ -7,13 +7,13 @@ Hey tu! Benvenuto nel mio Repository!
 qui troverai tutte le mie app e altro.
                                                                                      
 
-Erm, si. Qui trovi anche i miei pacchetti di 
-texture e anche i "client" più popolari
-                                                                                     
-                                                                                     
+Vai in basso alla pagina per i download.
+                                        Facciamo diventare questo sito fantastico!                                                                
 
- Join my crew! https://discord.gg/9EGV6CH2Pc                                                                                   
+Join my crew! https://discord.gg/9EGV6CH2Pc                                                                                   
+
 Aiutami! https://github.com/Mari04845/Mari04845-S-Repository/edit/main/README.md
+
 Youtube: https://www.youtube.com/channel/UC6RHnTE_Lq0p8wyaKMidmxg
 
 
