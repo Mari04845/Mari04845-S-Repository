@@ -1,4 +1,4 @@
-# Mari04845  S' Repository
+# Mari0484  S' Repository
 
 Hey tu! Benvenuto nel mio Repository!                                                      
 
@@ -66,3 +66,13 @@ Questo repository è ancora in costruzione,
 se vuoi contribuire nell' aspetto di questo repository
 scrivimi su discord!
                                                         
+                                                        
+                                                        
+                                                        
+                                                        
+                                                        
+                                                        
+                                                        
+                                                        
+                                                               ©2021 Mari0484 Programming
+                                                        Repository on github for various reasons.
