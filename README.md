@@ -45,11 +45,24 @@ Lunar Client:https://www.lunarclient.com/
 Badlion Client:https://www.badlion.net/
 
 
+
+
 🟪Sistemi operativi:
                                                                  
                                                                  
-                                                                 
-                                                                   😥Mi dispiace
+                                                                
+                                                                   😥 Mi dispiace
                                                            Questa area è in manutenzione,
                                                                   Riprova più tardi.
+
+
+
+
+
+
+ 😀 Repository in costruzione (ancora)
+ 
+Questo repository è ancora in costruzione,
+se vuoi contribuire nell' aspetto di questo repository
+scrivimi su discord!
                                                         
